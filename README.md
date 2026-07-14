@@ -14,7 +14,7 @@
     *(访问指南：永久主页及永久入口需保持稳定的全球网络环境，需科学上网方式访问。)*
 
 ### 📱 官方社群与自媒体
-*   **Telegram 官方群组**：[https://t.me/chiguas4414](https://t.me/chiguas4414)
+*   **Telegram 官方群组**：[https://telegram.me/chiguas4414](https://telegram.me/chiguas4414)
 *   **Twitter (X) 官方账号**：[@AnnaMor96433400](https://x.com/AnnaMor96433400)
 
 ### 📬 防失联与联络方式
