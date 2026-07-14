@@ -26,5 +26,5 @@
 ## ✍️ 征稿合作
 欢迎提供优质的一手资讯与热点线索：
 *   **邮箱投稿**：[cgs9866@proton.me](mailto:cgs9866@proton.me)
-*   **电报 (Telegram) 投稿**：[https://t.me/bzcg98](https://t.me/bzcg98)
+*   **电报 (Telegram) 投稿**：[https://telegram.me/bzcg98](https://telegram.me/bzcg98)
 *   *(注：如需通过微信或 QQ 进行投稿沟通，请先通过上述邮箱或电报与我们取得联系，随后索要具体账号。)*
