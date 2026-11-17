@@ -32,13 +32,8 @@ https://telegram.me/cgs3344
 
 https://telegram.me/cgs0895
 
-商务对接外事号 |业务联系TG
-
-https://telegram.me/huohuo1888
-
 🤝 商务合作 |商务合作
 商务合作外事号
-
 https://telegram.me/cggf91_66
 
 🔁最新地址获取方式（推荐）|如何获取最新地址
