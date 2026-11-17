@@ -37,9 +37,9 @@ https://telegram.me/cgs0895
 https://telegram.me/huohuo1888
 
 🤝 商务合作 |商务合作
-商务合作专用链接 / 商务合作链接
+商务合作外事号
 
-https://official.1fff8x-t1t1.cyou/?channel=HDXY001
+https://telegram.me/cggf91_66
 
 🔁最新地址获取方式（推荐）|如何获取最新地址
 📧 自动回复邮箱 |自动回复邮件
